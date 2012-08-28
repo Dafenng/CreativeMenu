@@ -4,4 +4,4 @@ For detailed information, please visit [**my blog**](http://keywind.me/?p=245)
 
 ---
 
-![screenshots](http://keywind.me/wp-content/uploads/2012/03/keywind_80.gif) <a>   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>![screenshots](http://keywind.me/wp-content/uploads/2012/03/keywind_101.gif) 
+![screenshots](http://keywind.me/images/2012/3/creativemenu_four.gif) <a>   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>![screenshots](http://keywind.me/images/2012/3/creativemenu_five.gif) 
